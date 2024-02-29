@@ -41,4 +41,4 @@ Join Plastec today! 🌟🌎
 # FLOWCHART
 
 
-![flowchart](/ss/Screenshot%202024-02-29%20235802.png)
+![flowchart](/ss/new.jpeg)
